@@ -1,4 +1,4 @@
-# PAVÊ DE CHOCOLATE
+# PAVÊ DE CHOCOLATE :chocolate_bar:
 
 ## INGREDIENTES
 
